@@ -2,12 +2,12 @@
 
 Grupo:
 
-Paulo Jorge 
+Paulo Jorge  
 
-Raul Vilas Boas 
+Raul Vilas Boas  
 
-Bernardo Silva 
+Bernardo Silva  
 
-César Ribeiro 
+César Ribeiro  
 
-Mariana Fernandes 
+Mariana Fernandes   
